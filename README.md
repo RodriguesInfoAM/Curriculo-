@@ -1,1 +1,0 @@
-# Curriculo-     oi porra
